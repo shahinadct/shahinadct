@@ -1,7 +1,7 @@
 ![views](https://gpvc.arturio.dev/Zahir-dct)
 ![](https://i.imgur.com/waxVImv.png)
 
-<a href="#"><img width="100%" height="auto" src="https://media-exp1.licdn.com/dms/image/C4D03AQH-ZHBWK8hZkg/profile-displayphoto-shrink_200_200/0/1658249597451?e=2147483647&v=beta&t=cVw0eWy6-8tYsOGtaRVfpGj4u8x_DfgGGi830mqQyt4" height="175px"/></a>
+<a href="#"><img width="100%" height="auto" src="https://i1.rgstatic.net/ii/profile.image/1111810493153280-1642087686300_Q512/Fathimath-C-A.jpg" height="175px"/></a>
 <h3 align="center">Hi there, I'm Shahina</h3>
 
 ## 𝙰𝚋𝚘𝚞𝚝 𝙼𝚎
