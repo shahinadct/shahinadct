@@ -5,7 +5,7 @@
 <h3 align="center">Hi there, I'm Shahina</h3>
 
 ## 𝙰𝚋𝚘𝚞𝚝 𝙼𝚎
-- 🖥 Senior Software Engineer | Space Reasercher
+- 🖥 Senior Software Engineer | space Researcher
 - 🎓 Master of Technology in Electronics and Communication Engineering  
 
 ## 𝚆𝚑𝚊𝚝 𝙸'𝚖 𝚞𝚙 𝚝𝚘
